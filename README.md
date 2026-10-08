@@ -1,0 +1,2 @@
+# premium-falconry-glove-001-falconry-gauntlet-leather-buil
+Struggling to keep track of leather thickness, stitch patterns, and custom measurements for your falconry gauntlet? Stop guessing and start building with a structured plan.  The Falconry Gauntlet Leather Build Planner is the only Notion template designed specifically for falconers and leatherworkers who want a repeatable, organized approach to craf
